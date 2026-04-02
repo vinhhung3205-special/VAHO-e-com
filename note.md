@@ -1,0 +1,2 @@
+Bạn đang hiểu sai về core value tôi đang muốn hướng tới: Buyer: Mua sắm bằng cảm xúc, không lo hàng giả/hàng đại trà, mỗi món đồ là một câu chuyện, điểm đến duy nhất cho trải nghiệm những sản phẩm do chính người dân local tại đất nước đó làm ra (cụ thể là Việt Nam)
+Selller: Không bị chìm nghỉm giữa hàng triệu sản phẩm giá rẻ, được định vị thương hiệu có đầu tư chất xám và có câu chuyện, có sẵn tệp khách hàng "có gu".
